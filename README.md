@@ -26,6 +26,7 @@ LUMIÈRE LABS is a luxury, minimalist makeup brand focused on clean, dermatologi
 ---
 
 ## 📁 Brand Assets
+https://iguana-rnyt87.my.canva.site/beauty-brand-identity-overview
 
 All visual designs, logos, and packaging mockups were crafted using **Canva**.
 
